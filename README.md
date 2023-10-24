@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @Mallikarjun-0
-- 💞️ I’m looking to collaborate on any project
-- 📫 How to reach me @ saimallikarjun9@gmail.com or saimallikarjun3@kgpian.iitkgp.ac.in
+
